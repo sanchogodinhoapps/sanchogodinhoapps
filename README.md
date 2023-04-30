@@ -1,0 +1,3 @@
+- 👋 Hi, we're SG Apps!
+- 👀 We're interested in making the world better using various technologies
+- 📫 You may anytime contact us at sanchogodinhoapps@gmail.com for any requests, queries, etc.
